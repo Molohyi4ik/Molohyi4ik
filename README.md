@@ -2,6 +2,8 @@
 ![image alt](https://github.com/Molohyi4ik/Molohyi4ik/blob/767869968d1a074da670e4da52018e0ee20a9250/6f1c6f7b84549149d74ddd85ebc10bc1.jpg)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[INFO](https://t.me/mlh4kinfo)
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ART TGC](https://t.me/mlh4k)
                               
 ◦ Босс afk, не против c+h и если что w2i okkk  
 
