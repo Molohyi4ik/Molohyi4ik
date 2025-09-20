@@ -1,6 +1,7 @@
 ## ***Пррр я Мóло (o゜▽゜)o☆***
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ-ˋˏ ༻❁༺ ˎˊ-
-ㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/15674e2ab1c470d37d0e3e9b9fb717567a0e5548/d509e10172085f0238247043b29e94a3.gif" width="740" height="300"/>
+
+ㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/15674e2ab1c470d37d0e3e9b9fb717567a0e5548/d509e10172085f0238247043b29e94a3.gif" width="740" height="300"/>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✧ ೃ*✩➮.; °❀‿‿‿‿(ㅤ [***INFO***](https://t.me/mlh4kinfo)ㅤ )‿‿‿‿❀°₊˚.༄ ೃ -
 
