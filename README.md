@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*ੈ✩‧₊˚꒰ㅤ [***ART TGC***](https://t.me/mlh4k)ㅤ ꒱⋆·˚ ༘ *
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/b2e70559ddceb11bfb7a8f158f56566900a1bd85/940d82291866c35ea449fc258aea45ff.gif" width="240" height="70"/>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/b2e70559ddceb11bfb7a8f158f56566900a1bd85/940d82291866c35ea449fc258aea45ff.gif" width="250" height="70"/>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✧.* **[IT'S ME !!]** ·˚ *
 
