@@ -21,10 +21,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ*ੈ✩‧₊˚ˏˋ°•*⁀➷ ( •̀ ω •́ )
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/fc05e4ce31812ded473d83844cb477109dc1f59c/%D0%BA%D0%BE%D1%82.gif" width="210" height="110"/>
+ㅤ
+ㅤ
+ㅤ
+ㅤ
 
-
-
-
-
-
-<img src="" width="750" height="310"/>
+<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/8c1abbf5180bc5cd6fc82788d2aa2921eed761c7/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/lyney-lyney-bow.gif" width="202" height="300"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/8c1abbf5180bc5cd6fc82788d2aa2921eed761c7/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/lyney-lynette.gif" width="300" height="170"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/8c1abbf5180bc5cd6fc82788d2aa2921eed761c7/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/lyney-genshin.gif" width="170" height="170"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/8c1abbf5180bc5cd6fc82788d2aa2921eed761c7/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/lyney-genshin-lyney.gif" width="170" height="170"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/8c1abbf5180bc5cd6fc82788d2aa2921eed761c7/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/genshin-genshin-impact.gif" width="170" height="170"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/8c1abbf5180bc5cd6fc82788d2aa2921eed761c7/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/lyney-kinich.gif" width="170" height="170"/>
