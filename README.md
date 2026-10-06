@@ -1,6 +1,9 @@
 ## ***Пррр я Мóло (o゜▽゜)o☆***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зырики](https://komarev.com/ghpvc/?username=molohyi4ik&color=6aa230)ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зырики](https://komarev.com/ghpvc/?username=molohyi4ik&label=зырики&color=6aa230&style=for-the-badge&abbreviated=true)
+
+
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/transgender-trans.gif" width="50" height="30"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/human-pride.gif" width="90" height="50"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/gay-gay-pride.gif" width="50" height="30"/>
 
