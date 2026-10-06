@@ -1,6 +1,6 @@
 ## ***Пррр я Мóло (o゜▽゜)o☆***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зырики](https://komarev.com/ghpvc/?username=molohyi4ik&label=зырики&color=6aa230&style=for-the-badge&abbreviated=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зырики](https://komarev.com/ghpvc/?username=molohyi4ik&label=зырики&color=6aa230&style=for-the-badge)
 
 
 
