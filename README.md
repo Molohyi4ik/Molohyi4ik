@@ -1,14 +1,14 @@
 ## ***Пррр я Мóло (o゜▽゜)o☆***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/d64001592a76c9f77bf9e68657ded39f5549cf8c/%D0%B1%D0%BE%D0%B1.gif">![зырики](https://komarev.com/ghpvc/?username=molohyi4ik&label=зырики&color=6aa230&style=for-the-badge)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/d64001592a76c9f77bf9e68657ded39f5549cf8c/%D0%B1%D0%BE%D0%B1.gif">![зырики](https://komarev.com/ghpvc/?username=molohyi4ik&label=зырики&color=6aa230&style=for-the-badge)
 
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/transgender-trans.gif" width="50" height="30"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/human-pride.gif" width="90" height="50"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/gay-gay-pride.gif" width="50" height="30"/>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/transgender-trans.gif" width="50" height="30"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/human-pride.gif" width="90" height="50"/>ㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/9975f7dea3eea45a58192da24ef481dfa045c0ea/%D0%B3%D0%B8%D1%84%D0%BA%D0%B8/gay-gay-pride.gif" width="50" height="30"/>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ-ˋˏ ༻❁༺ ˎˊ-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ-ˋˏ ༻❁༺ ˎˊ-
 
 
 ㅤㅤㅤㅤ<img src="https://github.com/Molohyi4ik/Molohyi4ik/blob/15674e2ab1c470d37d0e3e9b9fb717567a0e5548/d509e10172085f0238247043b29e94a3.gif" width="750" height="310"/>
