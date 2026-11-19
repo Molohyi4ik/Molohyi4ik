@@ -9,7 +9,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***TYPOLOGY***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ	(╯°□°）╯︵ ┻━┻ *4w3 sx478; ELVF; enfp iee; choleric-sanguine; sluai* 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ	(╯°□°）╯︵ ┻━┻ *4w3 sx478; ELVF; enfp iee; choleric; sluai* 
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ-ˋˏ ༻❁༺ ˎˊ-
